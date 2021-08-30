@@ -1,8 +1,9 @@
-- 👋 Hi, I’m @AlfaaGanzz
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Mau Beli Esce Premium Smart Bot?? 
+Chat Ke Nomor Di Bawah Ini
+http://wa.me/16506675315
+Harga?? 
+100K ngikut Update
+50K Ga Ngikut Update
 
 <!---
 AlfaaGanzz/AlfaaGanzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
