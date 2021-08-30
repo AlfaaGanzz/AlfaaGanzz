@@ -1,4 +1,4 @@
-Mau Beli Esce Premium Smart Bot?? \n
+Mau Beli Esce Premium Smart Bot??
 Chat Ke Nomor Di Bawah Ini
 http://wa.me/16506675315
 Harga?? 
